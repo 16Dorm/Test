@@ -5,3 +5,12 @@
 ###내것도올라가나??
 #####강병국 ㅂㅂㅂㅂㅂㅂㅂㅂ ㅅㅅㅅㅅㅅㅅㅅㅅㅅㅅㅅㅅ
 # 세진
+# 다른걸쓰고있었는데
+
+## 세진
+##커밋한번더
+
+# 테스트 이광우ㅜㅜ
+# zzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzz
+# zzzzz
+# a;sldfjkas;ldfk
